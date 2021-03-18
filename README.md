@@ -1,1 +1,2 @@
 # ChillyCheeseSandwich
+Chilli cheese sandwiches are served in a large triangular shaped white breads. In other words, three large sandwich slices are stuffed with grated cheddar cheese with chopped capsicum stuffing which is grilled till crisp. It is later served with some extra grated cheese topping with tomato ketchup.
